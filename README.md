@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Habib R. Rabby
-- 👀 I’m interested in Coding
+- 👀 I am interested in becoming a data analyst
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate with a professional expert to grow up my knowledge.
 - 📫 You can connect me by facebook / instagram / Telegram. Username: Habib.R.Rabby
